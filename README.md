@@ -2,7 +2,7 @@
 - 👀 I’m interested in building websites for startups, big companies and individuals.
 - 🌱 I’m currently working on this projects 👉https://www.fourlinkx.com ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me (https://www.fourlinkx.com)
+- 📫 How to reach me (https://wa.me/message/JK4EVNB76BVGP1)
 
 <!---
 Sunnyjoe101/Sunnyjoe101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
