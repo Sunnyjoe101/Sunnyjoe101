@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sunnyjoe101
 - 👀 I’m interested in building websites for startups, big companies and individuals.
 - 🌱 I’m currently working on this projects 👉https://www.fourlinkx.com ...
-- 💞️ I’m looking to collaborate on a project that will push me towards he next level of knowledge ..
+- 💞️ I’m looking to collaborate on a project that will push me towards the next level of knowledge ..
 - 📫 How to reach me (https://wa.me/message/JK4EVNB76BVGP1)
 
 <!---
